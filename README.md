@@ -1,2 +1,2 @@
-# DZQ-LIBRARY
-As we know,this best library is duzongqi's.
+# Alpha-LIBRARY
+THE GLORY AND THE DREAM.
